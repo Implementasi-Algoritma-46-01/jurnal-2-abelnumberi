@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: christiano abel numberi
 
-NIM : 
+NIM : 607062400101
 
 ## Instruksi
 
